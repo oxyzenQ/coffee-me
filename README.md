@@ -1,8 +1,7 @@
 - 👋 Hi, I’m @oxyrezz-code
 - 👀 I’m interested in --> create inovation project
 - 🌱 I’m currently learning --> neural-engine
-  #
-- 📫 How to reach me ... [direct] ~~~~> with.rezky@gmail.com
+- 📫 How to reach me: [direct] ~~~~> with.rezky@gmail.com
 - 😄 Pronouns: just call 'oxy'
 - ⚡ Fun fact: private level
 
