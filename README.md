@@ -1,12 +1,12 @@
-👋 Hi, I’m @rezky
+👋 Hi, I’m rezky_nightly
 
-🚀 Innovator passionate about cutting-edge projects
+🚀 Passion to selfdev, anonymous, & Open -> Source project
 
-🔍 Exploring neural engines
+🔍 Exploring Code
 
-😊 Pronouns: Oxy
+🎧 Danheim Runar
 
-🎉 Fun fact: Someone wants tea
+🎉 Fun fact, The brain wants to rest if tired 
 
 
 
