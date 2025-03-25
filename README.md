@@ -1,12 +1,10 @@
 👋 Hi, I’m rezky_nightly
 
-🚀 Passion to selfdev, anonymous, & Open -> Source project
+🚀 Passion to selfdev, anonymous, system blade night & Open -> Source project
 
-🔍 Exploring Code
+🔍 Exploring Dark core system
 
 🎧 Danheim Runar
-
-🎉 Fun fact, The brain wants to rest if tired 
 
 
 
