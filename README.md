@@ -1,4 +1,4 @@
-👋 Hi, I’m rezky_nightly
+👋 Hi, I’m rezky_nightky
 
 🚀 Passion to selfdev, anonymous, system blade night & Open -> Source project
 
